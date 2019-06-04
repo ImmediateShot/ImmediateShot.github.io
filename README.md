@@ -1,0 +1,1 @@
+# ImmediateShot.github.io
